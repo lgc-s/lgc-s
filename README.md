@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/65a648e8-6b05-4004-8d3c-d5cd989579bb)
+![image](https://github.com/user-attachments/assets/30168072-0ead-4726-9845-6b2585f44f9c)
 - 👋🙋🏻‍♂️ Hi There! My name's Luis Guilherme Costa Silva ♾️!
 - 🌐⌨️ I'm in GitHub for Web Development and develop for my hobbies.
 - 💎⛏️ Currently practicing my skills to make them even more polished.
